@@ -7,4 +7,12 @@ I love to play the drums, all though there is no time anymore with a new baby.
 The house is quite full and we are always busy.  My older two boys are into football and baseball.  
 I coach my own U12 competitive baseball team.  My older boys and I like [garden tractor pulling](https://ngtps.org/).
 
+** I also Like the following **
+* Camping
+* Fishing
+* Swimming
+* The Chiefs
+* The Royals
+
+
  
